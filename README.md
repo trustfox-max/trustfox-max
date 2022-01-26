@@ -3,5 +3,6 @@
 - 🌱 I’m currently learning Detachment, Self-Love
 - 💞️ I’m looking to collaborate on anything Travel/Crypto 
 - 📫 How to reach me ... arielbluestarshinewarrior@gmail.com
-           🐦Twitter @emjadewells
+
+                  🐦Twitter @emjadewells
 
